@@ -1,4 +1,4 @@
-e 2026 NeuroGolf Championship s'impose comme le rendez-vous technologique et sportif le plus avant-gardiste de l'année. Cette compétition d'élite rassemble les meilleurs athlètes internationaux autour d'une discipline révolutionnaire où la performance athlétique s'exprime par la maîtrise cognitive, redéfinissant ainsi les standards du sport de haut niveau.
+Le 2026 NeuroGolf Championship s'impose comme le rendez-vous technologique et sportif le plus avant-gardiste de l'année. Cette compétition d'élite rassemble les meilleurs athlètes internationaux autour d'une discipline révolutionnaire où la performance athlétique s'exprime par la maîtrise cognitive, redéfinissant ainsi les standards du sport de haut niveau.
 
 Innovation & Dispositif Technique
 S'affranchissant des équipements traditionnels (clubs, swings physiques), le NeuroGolf repose intégralement sur la synergie entre l'humain et la machine.
